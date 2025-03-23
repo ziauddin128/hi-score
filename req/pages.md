@@ -1,0 +1,1 @@
+https://hiscore.games/about/
